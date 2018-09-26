@@ -76,7 +76,7 @@
 | 07. Feb. 2019  |           | **Oral Exams**
 | 14. Feb. 2019  |           |
 | 21. Feb. 2019  |           | **Semester Break (*Semesterferien*)**
-| 28. Feb. 2019  |           |
+| 28. Feb. 2019  |   Max G   | Ready Player One by Ernest Cline
 | 07. Mar. 2019  |           |
 | 14. Mar. 2019  |           |
 | 21. Mar. 2019  |           |
